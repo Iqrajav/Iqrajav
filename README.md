@@ -2,7 +2,7 @@
 - 👀 I’m a Consistent, Hardworking, and Motivated Person.
 - 🌱 I’m currently learning advanced programming stuffs.
 - 💞️ I’m looking to collaborate on linkedin.
-- 📫 How to reach me ...
+- 📫 How to reach me https://www.linkedin.com/in/iqra-javed- 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
